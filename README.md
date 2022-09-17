@@ -10,7 +10,7 @@ Não importa o que fizeram com você. O que importa é o que você vai fazer com
 
 ## "Atrás de qualquer pessoa existe uma verdade e essa verdade é mais importante do que silhueta da pessoa, o traje ou a fala"
 
-No documentário *Coragem! As muitas vidas do cardeal Dom Paulo Evaristo Arns*
+No documentário *Coragem! As muitas vidas do cardeal Dom Paulo Evaristo Arns* [https://youtu.be/3bWv54ecQ8A?t=2347](Link)
 
 ## *Seria lamentável passar horas trocando mensagens com pessoas distantes e não brindar com uma palavra sequer as pessoas do convívio próximo.*
 
