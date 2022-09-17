@@ -14,5 +14,5 @@ No documentário *Coragem! As muitas vidas do cardeal Dom Paulo Evaristo Arns*
 
 ## *Seria lamentável passar horas trocando mensagens com pessoas distantes e não brindar com uma palavra sequer as pessoas do convívio próximo.*
 
-Dom Odilo Scherer (Tweet)[https://twitter.com/DomOdiloScherer/status/93324191868272641]
+Dom Odilo Scherer [https://twitter.com/DomOdiloScherer/status/93324191868272641]
 
